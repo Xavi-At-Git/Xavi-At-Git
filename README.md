@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **castilinox890@gmail.com**
 
-- ⚡ Fun fact **Im a Beginner T_T**
+- ⚡ Fun fact **Im a Beginner :)**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
